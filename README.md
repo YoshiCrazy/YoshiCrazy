@@ -6,6 +6,4 @@
 - I am the Ultimate Lifeform
 - Also Blindy/Sophie more funny than Futaba
 
-<!---
 Do NOT ask me what games I play, I already told you, I AM THE ULTIMATE Lifeform.
---->
