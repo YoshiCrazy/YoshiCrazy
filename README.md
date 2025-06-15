@@ -4,7 +4,7 @@
 - I barely only know Java so uhh... I'll later learn other languages.
 - Eat, sleep, draw, program, repeat.
 - I am the Ultimate Lifeform
-- Also PEAKori more funny than Futaba
+- Also Blindy/Sophie more funny than Futaba
 
 <!---
 Do NOT ask me what games I play, I already told you, I AM THE ULTIMATE Lifeform.
